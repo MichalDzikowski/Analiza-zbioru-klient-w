@@ -1,0 +1,1 @@
+# Analiza-zbioru-klient-w
